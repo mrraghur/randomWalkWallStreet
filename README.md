@@ -6,3 +6,16 @@ the price earnings of multiple stocjs in the index soared to over 100
 
 what is the situation now?
 
+what is the expectation of future stock return?
+
+what happens if google grows at 15% per year?  when will it overtake us economy?
+
+
+was core yahoo a negative value stock? Why is alibaba stock + yahoo stock less than combined yahoo  stock?
+
+
+
+what is the ration of stocks ated buy vs sell ? (Page 88)
+
+
+
