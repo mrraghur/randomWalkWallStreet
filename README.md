@@ -19,3 +19,13 @@ what is the ration of stocks ated buy vs sell ? (Page 88)
 
 
 
+case shiller inflation adjusted home price index
+
+name 3-4 undervalued stocks in your sector.
+
+name 3-4 overvalued stocks in your sector
+
+
+
+
+
